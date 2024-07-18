@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vaishujadhav100202
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning MBA.
-- 😄 Pronouns: vaish , payal 
+- 😄 Pronouns: vaish , didu , vaishu 
 - ⚡ i am also interested in singing bt i think my voice is not okay 
 
 <!---
